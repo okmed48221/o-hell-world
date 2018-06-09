@@ -1,3 +1,3 @@
 # o-hell-world
-canned tutorial
+What happened to Stumpy the Dwarf?
 He roll'd low. 
